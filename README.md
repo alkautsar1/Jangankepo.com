@@ -1,0 +1,2 @@
+# Jangankepo.com
+Jancok.id
